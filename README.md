@@ -1,0 +1,2 @@
+# -Mohamed-Akel
+Mohamed Akel, a renowned freelancer from chicago was amazing as a human. He got many skills being as a freelancer: Communication Skills, Judgement Skills, Research Skills, Preservance skills, People skills, Organisational skills, Creativity and many more. His words "Overcome your fear of failure. You won't be afraid to take chances once you realize you can learn from your mistakes."
